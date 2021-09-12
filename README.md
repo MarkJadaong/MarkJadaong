@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MarkJadaong
+- 👀 I’m interested in Soccer, Basketball, Sporting in general, chess, solve rubiks cube's juggle and learning new skills.
+- 🌱 I’m currently learning French
+- 💞️ I’m looking to collaborate on a good level
+- 📫 How to reach me: mvd.vlcm.phlnld@hotmail.com
